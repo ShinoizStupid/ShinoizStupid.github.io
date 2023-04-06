@@ -1,0 +1,1 @@
+# ShinoizStupid.github.io
